@@ -1,3 +1,3 @@
 👋 Hi, I’m @Zooce
 
-That's all for now.
+Just having fun building things I think are cool.
